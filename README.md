@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TGerd
-- 👀 I’m interested in coding just switchiing carreer 
+- 👀 I’m interested in coding,I'm just switching carreer 
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on hm...not sure yet
 - 📫 You can DM me
